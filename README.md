@@ -1,2 +1,5 @@
 # pythonn-fgd
-i dont knwo what to write
+hii aku lagi belajar github bareng kelompok python
+hmzsszzzsssss
+hmzsszzz no wordss
+apa lagi ya
